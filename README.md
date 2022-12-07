@@ -7,3 +7,7 @@ And when we are get up we think that we can went to training but my mother had o
 I decided to pack and move on. War was not gonna stop me.
 Even if i had to start from scratch abroad, I wanted to keep going. 
 And this how my journey started.
+
+As I packed my bags, I couldn't help but feel scared and uncertain about what the future held. I knew that the war in Ukraine was getting worse, and I was worried about my family's safety.
+
+But at the same time, I was determined to keep moving forward. I didn't want to be held back by the violence and chaos that was engulfing my country. So, I made the difficult decision to leave and start a new life abroad.
